@@ -1,3 +1,5 @@
+![I am](https://media.licdn.com/dms/image/v2/C5616AQGnL-5NFfwZDQ/profile-displaybackgroundimage-shrink_200_800/profile-displaybackgroundimage-shrink_200_800/0/1658322216298?e=1796860800&v=beta&t=1kgwWrdgHMX_QGA52gmGVzIczVcH8N7kiNzV51YpHJA)
+
 # Hello, I'm Rezaul Islam 👋
 
 ### Finance, Accounting & Financial Management Professional
